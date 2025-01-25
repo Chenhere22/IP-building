@@ -14,6 +14,9 @@ Avacado salad, lettues salad, Brezel, soup, Hamburger, Crêpe，and mett brötch
 
 ## Learning IPs
 
+## post videos
+From Jan. 25 to Feb. 8, I can distribute at least one video each day.
+
 ## Link
 1. Chinese Tiktok: https://www.douyin.com/user/self?showTab=post
 2. Bilibili: https://space.bilibili.com/1196359457/dynamic?spm_id_from=333.1296.0.0
